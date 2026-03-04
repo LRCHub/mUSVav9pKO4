@@ -1,4 +1,4 @@
-# Yorushika – 晴る
+# Yorushika – 晴る - Sunny
 
 > **歌詞登録ステータス：同期歌詞あり**
 
